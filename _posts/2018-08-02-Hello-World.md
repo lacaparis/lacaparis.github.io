@@ -3,4 +3,4 @@ layout: post
 title: Hello World!
 ---
 
-Hello this is Lac-Lac's first post.
+This site is a work in progress.
