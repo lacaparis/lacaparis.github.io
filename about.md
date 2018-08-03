@@ -4,9 +4,11 @@ title: About & Contact | Work in progress
 permalink: /about/
 ---
 
+## Lacaparis - a work in progress
+
 Mình là Lạc Lạc. Mình từng (hay vẫn) là một người trẻ loay hoay giữa rừng thông tin du học. Mình chỉ muốn viết lại những gì đã trải qua, hi vọng có thể giúp ai đó, thêm động lực cho ai đó trong việc học hành, trong quá trình làm hồ sơ hay quá trình bắt đầu cuộc sống ở một đất nước mới.
 
-### More Information
+## More Information
 
 Mọi khi vẫn có rất nhiều bạn email nhờ mình tư vấn, nhưng vì cuộc sống bận rộn và thời gian dành cho dự án Lacaparis hạn hẹp, mình không thể trả lời tất cả câu hỏi của mọi người. Vậy nên thay vì hỏi mình, các bạn có thể tìm giải đáp cho các thắc mắc qua những kênh sau:
 
@@ -19,7 +21,7 @@ Về các bài viết: công sức mình nặn não ra viết blog, bạn trẻ 
 
 <em>All blog posts & photos on this site (c) Lacaparis, and may not be used without permission.</em>
 
-### Contact me
+## Contact me
 
 [lacaparis@gmail.com](mailto:lacaparis@gmail.com)
 Mình còn một kênh instagram, sẽ thông báo bài viết mới và cập nhật hình ảnh ở đó, bạn nào dùng instagram có thể follow <a href="https://www.instagram.com/lacaparis/" target="_blank">@lacaparis</a>.
