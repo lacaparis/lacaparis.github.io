@@ -1,6 +1,6 @@
 ---
 layout: page
-title: About & Contact | Work in progress
+title: About & Contact
 permalink: /about/
 ---
 
