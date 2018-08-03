@@ -10,10 +10,10 @@ Mình là Lạc Lạc. Mình từng (hay vẫn) là một người trẻ loay ho
 
 ## More Information
 
-Mọi khi vẫn có rất nhiều bạn email nhờ mình tư vấn, nhưng vì cuộc sống bận rộn và thời gian dành cho dự án Lacaparis hạn hẹp, mình không thể trả lời tất cả câu hỏi của mọi người. Vậy nên thay vì hỏi mình, các bạn có thể tìm giải đáp cho các thắc mắc qua những kênh sau:
+Mọi khi vẫn có rất nhiều bạn email nhờ mình tư vấn, nhưng vì cuộc sống bận rộn và thời gian dành cho dự án Lacaparis hạn hẹp, mình không thể trả lời tất cả câu hỏi của mọi người. Vậy nên thay vì hỏi mình, các bạn có thể tìm giải đáp qua những kênh sau:
 
 - Google: thật sự đã có nhiều anh chị du học sinh Việt Nam dành thời gian viết blog, bạn có thể tìm thông tin du học không chỉ ở Pháp mà còn ở nhiều nước khác.
-- Campus France: các anh chị rất thân thiện, các bạn cũng có thể tìm hiểu thông tin trong những ngày hội du học hay diễn đàn do Campus France tổ chức / đồng tổ chức.
+- Campus France: các anh chị rất thân thiện, bạn cũng có thể tìm hiểu thông tin trong những ngày hội du học hay diễn đàn do Campus France tổ chức / đồng tổ chức.
 - UEVF: hội sinh viên du học ở Pháp, bạn có thể tìm group UEVF trên Facebook. Mình đã nhận được rất nhiều giải đáp và giúp đỡ trên group này. 
 
 
