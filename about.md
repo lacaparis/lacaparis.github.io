@@ -6,7 +6,7 @@ permalink: /about/
 
 ## Lacaparis - a work in progress
 
-Mình là Lạc Lạc. Mình từng (hay vẫn) là một người trẻ loay hoay giữa rừng thông tin du học. Mình chỉ muốn viết lại những gì đã trải qua, hi vọng có thể giúp ai đó, thêm động lực cho ai đó trong việc học hành, trong quá trình làm hồ sơ hay quá trình bắt đầu cuộc sống ở một đất nước mới.
+Mình là Lạc Lạc. Mình từng (hay vẫn) là một người trẻ loay hoay giữa rừng thông tin du học. Mình chỉ muốn viết lại những gì đã trải qua, hi vọng có thể giúp ai đó, thêm động lực cho ai đó trong việc học hành, trong quá trình làm hồ sơ hay lúc bắt đầu cuộc sống ở một đất nước mới.
 
 ## More Information
 
