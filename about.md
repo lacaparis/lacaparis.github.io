@@ -12,7 +12,7 @@ Mình là Lạc Lạc. Mình từng (hay vẫn) là một người trẻ loay ho
 
 Mọi khi vẫn có rất nhiều bạn email nhờ mình tư vấn, nhưng vì cuộc sống bận rộn và thời gian dành cho dự án Lacaparis hạn hẹp, mình không thể trả lời tất cả câu hỏi của mọi người. Vậy nên thay vì hỏi mình, các bạn có thể tìm giải đáp qua những kênh sau:
 
-- <b>Google</a>: thật sự đã có nhiều anh chị du học sinh Việt Nam dành thời gian viết blog hay vlog trên Youtube, bạn có thể tìm thông tin du học không chỉ ở Pháp mà còn ở nhiều nước khác.
+- <b>Google</b>: thật sự đã có nhiều anh chị du học sinh Việt Nam dành thời gian viết blog hay vlog trên Youtube, bạn có thể tìm thông tin du học không chỉ ở Pháp mà còn ở nhiều nước khác.
 - <b>Campus France</b>: các anh chị rất thân thiện, bạn cũng có thể tìm hiểu thông tin trong những ngày hội du học hay diễn đàn do Campus France tổ chức / đồng tổ chức.
 - <b>UEVF</b>: hội sinh viên du học ở Pháp, bạn có thể tìm nhóm <a href="https://www.facebook.com/groups/uevf.org/" target="_blank">UEVF trên Facebook</a>. Mình đã nhận được rất nhiều giải đáp và giúp đỡ trên này. 
 
