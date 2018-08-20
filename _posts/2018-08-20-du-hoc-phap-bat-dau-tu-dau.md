@@ -3,9 +3,8 @@ layout: post
 title: Du học Pháp, bắt đầu từ đâu?
 ---
 
-# Du học Pháp, bắt đầu từ đâu?
-
 Mình chẳng nhớ ý định du học Pháp của mình bắt đầu từ khi nào. Hồi trung học được khen có chút khiếu ngoại ngữ, rồi từ từ nuôi ước mơ phải ra ngoài biển lớn để biết mình chỉ là hạt cát. Cũng được nhiều người giới thiệu cho các chương trình ở các quốc gia nói tiếng Anh... nhưng không thấy con đường nào khả thi với mình. (Chuyện này mình sẽ viết rõ hơn ở một bài khác) Rồi chọn học tiếng Pháp, mỗi năm nhiệt tình tham gia các chương trình hỗ trợ các bạn sinh viên sang Pháp học, thấy các anh chị khóa trên từng người, từng người bắt đầu công cuộc tìm kiếm tri thức ở mảnh đất lục giác. Rất tự nhiên, mình cũng bắt đầu hành trình của mình. Bắt đầu như thế nào thì mình sẽ kể ở đây.
+
 
 ## 1. Bắt đầu từ bản thân mình
 Ở giai đoạn nào đó trong cuộc sống, mình sẽ tự xem lại ba câu hỏi, <b>“Mình là ai, đang ở đâu?” “Mình muốn đi đâu?” và “Làm thế nào để đi đến đó?”</b> 
@@ -14,11 +13,13 @@ Nếu bạn có ý định du học, thì phải tự đặt cho mình những c
 Và rất nhiều câu hỏi khác liên quan đến việc thích nghi cuộc sống. Điều mình thích ở các hội thảo du học Pháp, đó là các anh chị không tô vẽ về một cuộc sống trong mơ, mà còn nói về những khó khăn khi sang một đất nước mới. Nói ra không phải để bạn nhụt chí - mà để bạn chuẩn bị tinh thần cho chính mình. <b>Nothing worthwhile comes easy.</b> Không điều gì tốt đẹp mà lại đến dễ dàng cả. Đằng sau những bức hình lung linh bên tháp Eiffel trên facebook là rất nhiều khó khăn mà đời du học sinh phải trải qua bạn ạ. 
 
 Nếu bạn chỉ cần một vài tấm hình cúng mạng xã hội thì không cần lăn tăn lo nghĩ nữa, đi làm để dành tiền rồi đi du lịch cũng được. Còn nếu bạn muốn nhiều hơn, thì phải cố gắng nhiều hơn, nỗ lực nhiều hơn.  
+
  
 ## 2. Ok chưa? Thế thì google thôi
 Thời đại công nghệ, cái gì cũng có thể google được. Mình đã tìm kiếm rất nhiều, đọc rất nhiều, từ sách vở cho đến các trang blog mạng. Từ những câu hỏi đặt ra ở mục 1, mình tìm trường đáng học với mình, tìm thành phố đáng sống với mình. Mình lặp lại chữ “với mình,” nghĩa là mỗi người sẽ có những nhận định khác nhau. Có bạn thích ở những thành phố cổ kính như Lille, có bạn thích nơi đầy nắng ấm như Montpellier. Còn việc chọn trường cũng tùy định hướng tương lai của mỗi người, có ngành chuyên về nghiên cứu thì đặt nặng lý thuyết, có ngành cho sinh viên kết nối với doanh nghiệp nhiều hơn. Tùy bạn chọn cả.
 
 Để có thông tin thì phải đọc, đọc rất nhiều, cả tiếng Anh, tiếng Pháp và tiếng Việt. Nếu ở bước này mà đọc còn không nổi thì làm sao sang đó đọc mấy ký sách giáo trình ngoại văn bây giờ.
+ 
  
 ## 3. Campus France VN & UEVF - người bạn đồng hành
 Google xong rồi, nắm được vài thông tin căn bản về hệ thống giáo dục ở Pháp rồi, bạn có thể (và chắc hẳn sẽ) tìm đến <a href="http://www.vietnam.campusfrance.org/vi" target="_blank" rel="nofollow">Campus France</a> và <a href="https://www.facebook.com/groups/uevf.org/" target="_blank" rel="nofollow">nhóm (group) UEVF</a>. 
@@ -29,8 +30,10 @@ Group UEVF cũng là một kênh thông tin khi mình sắp đi du học. Mình 
 
 Qua những hội thảo du học, những lần chuyện trò cùng mọi người, bạn sẽ hiểu chi phí sinh hoạt trung bình ở Pháp như thế nào, các thủ tục cần phải làm,... từ đó có cái nhìn rõ ràng hơn về con đường du học của mình.
 
+
 ## 4.Tìm nguồn động lực
 Nếu bạn được gia đình ủng hộ, hỗ trợ trong việc du học thì tuyệt vời, nếu không, hãy tự tìm cho mình những nguồn động lực. Mình là trường hợp tự lực cánh sinh, mà dù có gia đình kề bên vẫn phải tự lực cánh sinh bạn ạ. Quá trình từ khi mình viết letter of motivation đến khi mình nhận được visa là một đoạn đường dài hơi, phải tự nhắc mình nỗ lực. Bản thân mình thì mình cực kỳ thích đọc blog của các anh chị du học sinh, lâu lâu vừa đọc vừa cười một mình. Mình hâm mộ các anh chị rất nhiều, và thực sự cảm ơn các anh chị đã viết những bài viết giúp mình thêm động lực trong lúc mình muốn bỏ cuộc. Ngoài ra mình cũng kể chuyện với một vài người bạn, có bạn ủng hộ, có bạn im lặng không nói gì, có bạn không được bao dung lắm, có bạn kể ra mới biết nó cũng đang định đi du học, thế là tìm được đồng minh!
+
 
 ##
 Du học là một chặng đường dài, nếu bạn muốn bắt đầu, thì hãy bắt đầu từ bây giờ. Chúc bạn nghị lực và may mắn!
