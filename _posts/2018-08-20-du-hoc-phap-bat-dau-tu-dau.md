@@ -21,7 +21,7 @@ Thời đại công nghệ, cái gì cũng có thể google được. Mình đã
 Để có thông tin thì phải đọc, đọc rất nhiều, cả tiếng Anh, tiếng Pháp và tiếng Việt. Nếu ở bước này mà đọc còn không nổi thì làm sao sang đó đọc mấy ký sách giáo trình ngoại văn bây giờ.
  
 ## 3. Campus France VN & UEVF - người bạn đồng hành
-Google xong rồi, nắm được vài thông tin căn bản về hệ thống giáo dục ở Pháp rồi, bạn có thể (và chắc hẳn sẽ) tìm đến <a href="http://www.vietnam.campusfrance.org/vi" target="_blank" rel="nofollow">Campus France</a> và <<a href="https://www.facebook.com/groups/uevf.org/" target="_blank" rel="nofollow">nhóm (group) UEVF</a>. 
+Google xong rồi, nắm được vài thông tin căn bản về hệ thống giáo dục ở Pháp rồi, bạn có thể (và chắc hẳn sẽ) tìm đến <a href="http://www.vietnam.campusfrance.org/vi" target="_blank" rel="nofollow">Campus France</a> và <a href="https://www.facebook.com/groups/uevf.org/" target="_blank" rel="nofollow">nhóm (group) UEVF</a>. 
 
 Những năm gần đây Campus France VN có tổ chức hai hội thảo chính. Một là <b>Salon Bienvenue en France</b>, khoảng tháng 10, là dịp mà đại diện các trường sang gặp gỡ, giới thiệu, đây cũng là cơ hội để bạn có thêm thông tin, làm quen với các bạn cùng chí hướng. Thứ hai là <b>Diễn đàn du học Pháp</b>, tổ chức tầm đầu tháng 8, các anh chị cựu du học sinh sẽ cho bạn cái nhìn tổng quan về cuộc sống sinh viên. 
 
