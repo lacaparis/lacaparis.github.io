@@ -8,7 +8,7 @@ Mình chẳng nhớ ý định du học Pháp của mình bắt đầu từ khi 
 
 ## 1. Bắt đầu từ bản thân mình
 Ở giai đoạn nào đó trong cuộc sống, mình sẽ tự xem lại ba câu hỏi, <b>“Mình là ai, đang ở đâu?” “Mình muốn đi đâu?” và “Làm thế nào để đi đến đó?”</b> 
-Nếu bạn có ý định du học, thì phải tự đặt cho mình những câu tương tự. Bạn là ai, hồ sơ học tập của bạn như thế nào? Bạn phù hợp với môi trường giáo dục như thế nào? Trình độ ngoại ngữ của bạn đến đâu rồi? Bạn có thế mạnh gì? Nếu muốn ứng cử vào trường top, điều gì sẽ khiến bạn nổi bật giữa hàng ngàn hồ sơ trường nhận được mỗi năm?
+Nếu bạn có ý định du học, thì phải tự đặt những câu tương tự. Bạn là ai, hồ sơ học tập của bạn như thế nào? Bạn phù hợp với môi trường giáo dục như thế nào? Trình độ ngoại ngữ của bạn đến đâu rồi? Bạn có thế mạnh gì? Nếu muốn ứng cử vào trường top, điều gì sẽ khiến bạn nổi bật giữa hàng ngàn hồ sơ trường nhận được mỗi năm?
 
 Và rất nhiều câu hỏi khác liên quan đến việc thích nghi cuộc sống. Điều mình thích ở các hội thảo du học Pháp, đó là các anh chị không tô vẽ về một cuộc sống trong mơ, mà còn nói về những khó khăn khi sang một đất nước mới. Nói ra không phải để bạn nhụt chí - mà để bạn chuẩn bị tinh thần cho chính mình. <b>Nothing worthwhile comes easy.</b> Không điều gì tốt đẹp mà lại đến dễ dàng cả. Đằng sau những bức hình lung linh bên tháp Eiffel trên facebook là rất nhiều khó khăn mà đời du học sinh phải trải qua bạn ạ. 
 
@@ -16,9 +16,9 @@ Nếu bạn chỉ cần một vài tấm hình cúng mạng xã hội thì khôn
 
  
 ## 2. Ok chưa? Thế thì google thôi
-Thời đại công nghệ, cái gì cũng có thể google được. Mình đã tìm kiếm rất nhiều, đọc rất nhiều, từ sách vở cho đến các trang blog mạng. Từ những câu hỏi đặt ra ở mục 1, mình tìm trường đáng học với mình, tìm thành phố đáng sống với mình. Mình lặp lại chữ “với mình,” nghĩa là mỗi người sẽ có những nhận định khác nhau. Có bạn thích ở những thành phố cổ kính như Lille, có bạn thích nơi đầy nắng ấm như Montpellier. Còn việc chọn trường cũng tùy định hướng tương lai của mỗi người, có ngành chuyên về nghiên cứu thì đặt nặng lý thuyết, có ngành cho sinh viên kết nối với doanh nghiệp nhiều hơn. Tùy bạn chọn cả.
+Thời đại công nghệ, cái gì cũng có thể google được. Mình đã tìm kiếm rất nhiều, đọc rất nhiều, từ sách vở cho đến các trang blog mạng. Từ những câu hỏi đặt ra ở mục 1, mình tìm trường đáng học với mình, tìm thành phố đáng sống với mình. Mình lặp lại chữ “với mình,” nghĩa là mỗi người sẽ có những nhận định khác nhau. Có bạn thích ở thành phố cổ kính như Lille, có bạn thích nơi đầy nắng ấm như Montpellier. Còn việc chọn trường cũng tùy định hướng tương lai của mỗi người, có ngành chuyên về nghiên cứu thì đặt nặng lý thuyết, có ngành cho sinh viên kết nối với doanh nghiệp nhiều hơn. Tùy bạn chọn cả.
 
-Để có thông tin thì phải đọc, đọc rất nhiều, cả tiếng Anh, tiếng Pháp và tiếng Việt. Nếu ở bước này mà đọc còn không nổi thì làm sao sang đó đọc mấy ký sách giáo trình ngoại văn bây giờ.
+Để có thông tin thì phải đọc, đọc rất nhiều, cả tiếng Anh, tiếng Việt và đôi khi tiếng Pháp nữa. Nếu ở bước này mà đọc còn không nổi thì làm sao sang đó đọc mấy ký sách giáo trình ngoại văn bây giờ.
  
  
 ## 3. Campus France VN & UEVF - người bạn đồng hành
