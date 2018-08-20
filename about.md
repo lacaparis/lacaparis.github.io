@@ -25,4 +25,4 @@ Về các bài viết: công sức mình nặn não ra viết blog, bạn trẻ 
 
 Email mình: [lacaparis@gmail.com](mailto:lacaparis@gmail.com)
 
-Mình còn một kênh instagram, sẽ thông báo bài viết mới và cập nhật hình ảnh ở đó, bạn nào dùng instagram có thể follow <a href="https://www.instagram.com/lacaparis/" target="_blank">@lacaparis</a>.
+Mình còn một kênh instagram, sẽ thông báo bài viết mới và cập nhật hình ảnh ở đó, bạn nào dùng instagram có thể follow <a href="https://www.instagram.com/lacaparis/" target="_blank">@lacaparis</a>. Bạn cũng có thể đặt câu hỏi ở bằng cách nhắn tin qua instagram, nếu có thời gian mình sẽ trả lời.
