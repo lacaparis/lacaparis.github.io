@@ -26,13 +26,15 @@ Google xong rồi, nắm được vài thông tin căn bản về hệ thống g
 
 Những năm gần đây Campus France VN có tổ chức hai hội thảo chính. Một là <b>Salon Bienvenue en France</b>, khoảng tháng 10, là dịp mà đại diện các trường sang gặp gỡ, giới thiệu, đây cũng là cơ hội để bạn có thêm thông tin, làm quen với các bạn cùng chí hướng. Thứ hai là <b>Diễn đàn du học Pháp</b>, tổ chức tầm đầu tháng 8, các anh chị cựu du học sinh sẽ cho bạn cái nhìn tổng quan về cuộc sống sinh viên. 
 
-Group UEVF cũng là một kênh thông tin khi mình sắp đi du học. Mình tìm được chỗ ở xinh xắn hiện tại cũng nhờ một anh bạn chung trường qua group này. Các anh chị trong nhóm trả lời những câu hỏi của mình rất nhiệt tình - nhưng phải hỏi đúng câu hỏi bạn nhé.
+Group UEVF cũng là một kênh thông tin hữu ích khi mình sắp đi du học. Mình tìm được chỗ ở xinh xắn hiện tại nhờ một anh bạn chung trường qua group này. Các anh, chị, bạn trong nhóm trả lời câu hỏi của mình rất nhiệt tình - nhưng phải hỏi đúng câu hỏi bạn nhé.
 
-Qua những hội thảo du học, những lần chuyện trò cùng mọi người, bạn sẽ hiểu chi phí sinh hoạt trung bình ở Pháp như thế nào, các thủ tục cần phải làm,... từ đó có cái nhìn rõ ràng hơn về con đường du học của mình.
+Qua những hội thảo du học, những lần chuyện trò cùng mọi người, bạn sẽ hiểu chi phí sinh hoạt trung bình ở Pháp như thế nào, các thủ tục cần phải làm, những khó khăn mà mọi người hay gặp phải,... từ đó có cái nhìn rõ ràng hơn về con đường du học của mình.
 
 
 ## 4.Tìm nguồn động lực
-Nếu bạn được gia đình ủng hộ, hỗ trợ trong việc du học thì tuyệt vời, nếu không, hãy tự tìm cho mình những nguồn động lực. Mình là trường hợp tự lực cánh sinh, mà dù có gia đình kề bên vẫn phải tự lực cánh sinh bạn ạ. Quá trình từ khi mình viết letter of motivation đến khi mình nhận được visa là một đoạn đường dài hơi, phải tự nhắc mình nỗ lực. Bản thân mình thì mình cực kỳ thích đọc blog của các anh chị du học sinh, lâu lâu vừa đọc vừa cười một mình. Mình hâm mộ các anh chị rất nhiều, và thực sự cảm ơn các anh chị đã viết những bài viết giúp mình thêm động lực trong lúc mình muốn bỏ cuộc. Ngoài ra mình cũng kể chuyện với một vài người bạn, có bạn ủng hộ, có bạn im lặng không nói gì, có bạn không được bao dung lắm, có bạn kể ra mới biết nó cũng đang định đi du học, thế là tìm được đồng minh!
+Nếu bạn được gia đình ủng hộ, hỗ trợ trong việc du học thì tuyệt vời, nếu không, hãy tự tìm cho mình những nguồn động lực. Mình là trường hợp tự lực cánh sinh, mà dù có gia đình kề bên vẫn phải tự lực cánh sinh bạn ạ. 
+
+Quá trình từ khi mình viết letter of motivation đến khi mình nhận được visa là một đoạn đường dài hơi, phải tự nhắc mình nỗ lực. Cá nhân mình cực kỳ thích đọc blog của các anh chị du học sinh, lâu lâu vừa đọc vừa cười một mình. Mình hâm mộ các anh chị rất nhiều, và thực sự cảm ơn các anh chị đã viết những bài viết giúp mình thêm động lực trong lúc mình muốn bỏ cuộc. Ngoài ra mình cũng kể chuyện với một vài người bạn, có bạn ủng hộ, có bạn im lặng không nói gì, có bạn không được bao dung lắm, có bạn kể ra mới biết nó cũng đang định đi du học, thế là tìm được đồng minh!
 
 
 ##
