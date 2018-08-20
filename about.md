@@ -17,7 +17,7 @@ Mọi khi vẫn có rất nhiều bạn email nhờ mình tư vấn, nhưng vì 
 - <b>UEVF</b>: hội sinh viên du học ở Pháp, bạn có thể tìm nhóm <a href="https://www.facebook.com/groups/uevf.org/" target="_blank" rel="nofollow">UEVF trên Facebook</a>. Mình đã nhận được rất nhiều giải đáp và giúp đỡ trên này. 
 
 
-Về các bài viết: công sức mình nặn não ra viết blog, bạn trẻ đáng yêu nào muốn lấy bài viết sang trang khác vui lòng bỏ 30 giây nhắn mình một tin qua email, cho mình xin nguồn / backlink, và đừng cắt xén bài viết của mình, mình cám ơn nhiều nè.
+Về các bài viết: công sức mình nặn não ra viết blog, bạn trẻ đáng yêu nào muốn lấy bài viết sang trang khác vui lòng bỏ 30 giây nhắn mình một tin qua email, cho mình xin nguồn / backlink, và đừng cắt xén bài viết của mình. Mình cám ơn nhiều nè.
 
 <em>All blog posts & photos on this site (c) Lacaparis, and may not be used without permission.</em>
 
