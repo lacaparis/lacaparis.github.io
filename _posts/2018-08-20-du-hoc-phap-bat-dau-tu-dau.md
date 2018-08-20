@@ -5,7 +5,7 @@ title: Du học Pháp, bắt đầu từ đâu?
 
 # Du học Pháp, bắt đầu từ đâu?
 
-Mình chẳng nhớ ý định du học Pháp của mình bắt đầu từ khi nào. Hồi trung học được khen có chút khiếu ngoại ngữ, rồi từ từ nuôi ước mơ phải ra ngoài biển lớn để biết mình chỉ là hạt cát. Cũng được nhiều người giới thiệu cho các chương trình ở các quốc gia nói tiếng Anh... nhưng không thấy con đường nào khả thi với mình. (Chuyện này mình sẽ viết rõ hơn ở một bài khác) Rồi chọn học tiếng Pháp, mỗi năm nhiệt tình tham gia các chương trình hỗ trợ các bạn sinh viên sang Pháp học, thấy các anh chị khóa trên từng người, từng người bắt đầu công cuộc tìm kiếm tri thức ở mảnh đất lục giác. <b>Rất tự nhiên, mình cũng bắt đầu hành trình của mình.</b> Bắt đầu như thế nào thì mình sẽ kể ở đây.
+Mình chẳng nhớ ý định du học Pháp của mình bắt đầu từ khi nào. Hồi trung học được khen có chút khiếu ngoại ngữ, rồi từ từ nuôi ước mơ phải ra ngoài biển lớn để biết mình chỉ là hạt cát. Cũng được nhiều người giới thiệu cho các chương trình ở các quốc gia nói tiếng Anh... nhưng không thấy con đường nào khả thi với mình. (Chuyện này mình sẽ viết rõ hơn ở một bài khác) Rồi chọn học tiếng Pháp, mỗi năm nhiệt tình tham gia các chương trình hỗ trợ các bạn sinh viên sang Pháp học, thấy các anh chị khóa trên từng người, từng người bắt đầu công cuộc tìm kiếm tri thức ở mảnh đất lục giác. Rất tự nhiên, mình cũng bắt đầu hành trình của mình. Bắt đầu như thế nào thì mình sẽ kể ở đây.
 
 ## 1. Bắt đầu từ bản thân mình
 Ở giai đoạn nào đó trong cuộc sống, mình sẽ tự xem lại ba câu hỏi, <b>“Mình là ai, đang ở đâu?” “Mình muốn đi đâu?” và “Làm thế nào để đi đến đó?”</b> 
