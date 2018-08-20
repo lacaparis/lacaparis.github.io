@@ -37,7 +37,7 @@ Nếu bạn được gia đình ủng hộ, hỗ trợ trong việc du học th�
 Quá trình từ khi mình viết letter of motivation đến khi mình nhận được visa là một đoạn đường dài hơi, phải tự nhắc mình nỗ lực. Cá nhân mình cực kỳ thích đọc blog của các anh chị du học sinh, lâu lâu vừa đọc vừa cười một mình. Mình hâm mộ các anh chị rất nhiều, và thực sự cảm ơn các anh chị đã viết những bài viết giúp mình thêm động lực trong lúc mình muốn bỏ cuộc. Ngoài ra mình cũng kể chuyện với một vài người bạn, có bạn ủng hộ, có bạn im lặng không nói gì, có bạn không được bao dung lắm, có bạn kể ra mới biết nó cũng đang định đi du học, thế là tìm được đồng minh!
 
 
-##
+## 5. If not now, then when?
 Du học là một chặng đường dài, nếu bạn muốn bắt đầu, thì hãy bắt đầu từ bây giờ. Chúc bạn nghị lực và may mắn!
 
  <br>
