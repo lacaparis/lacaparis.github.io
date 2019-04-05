@@ -4,7 +4,7 @@ title: Du học Pháp, chuyện tiền nong, ăn uống hằng ngày
 ---
 
 Du học Pháp cần bao nhiêu tiền? Đây là câu hỏi mà mình đã trăn trở rất lâu, do mình thuộc diện con nhà nghèo hiếu học, mà học cũng không xuất sắc như người ta, lận đận mấy năm cũng không apply được cái học bổng nào khả thi. (Lý do tại sao không apply được thì mình sẽ kể chi tiết sau)
-Không ai cho mình tiền đi học thì mình tự kiếm tiền, cũng chật vật vài năm. Mà thôi bỏ qua câu chuyện cuộc đời và quay lại chủ đề chính, mình sẽ chia sẻ với các bạn cách làm sao sống sót với chuyện cơm áo gạo tiền ở Pháp.
+Không ai cho mình tiền đi học thì mình tự kiếm tiền, cũng chật vật vài năm. Mà thôi bỏ qua câu chuyện cuộc đời và quay lại chủ đề chính, mình sẽ chia sẻ với các bạn bí kíp sống sót với chuyện cơm áo gạo tiền ở Pháp.
 
 Theo thống kê trên quyển sổ tay của các anh chị UEVF thì một năm học cần khoảng 4500 - 6000 euro (nhớ không lầm thì là số liệu trên quyển năm 2016), NHƯNG đây là con số ước tính. Nếu bạn sống ở vùng mà giá nhà đắt đỏ và ít trợ cấp nhà ở (CAF), hoặc bạn là người thích mua sắm thích đi chơi cuối tuần thì con số này hẳn không đủ. Có người sang đây với 4,000 euro vẫn sống được và có người 10,000 vẫn thiếu. Số tiền phải chứng thực lúc xin visa là khoảng 7800 euro, còn tiền mặt đem qua hải quan và thì không đến mức đấy đâu. Bạn nên ổn định về mặt tài chính thì mới có thể yên tâm một phần mà tập trung học hành được. Đi làm thêm cuối tuần ở Paris cũng được (mấy vùng khác mình ko biết) nhưng mình gặp nhiều trường hợp lo kiếm tiền rồi bỏ học bỏ thi bỏ cả tương lai. 
 
