@@ -8,9 +8,11 @@ Một trong những điều mình khá thích ở Pháp là hệ thống y tế 
 À, quay lại chủ đề chính, mình chích HPV miễn phí như thế nào? 
 <em>(Các vấn đề liên quan như tại sao phải chích thì các bạn tìm hiểu trên mạng, mình chỉ nói về cách mình đã làm thôi.)</em>
 
-Mình chích vaccine này lúc 23 tuổi, là quá tuổi được miễn phí theo quy định rồi. Mình mua bảo hiểm của Smerep, loại Indispensable 8e/tháng (bạn google "smerep indispensable" là có nhé), lúc mình mua chỉ trả 56e (bảo hiểm cho sinh viên nên tính đến cuối tháng tám)
-Đợi vài tuần thì Smerep sẽ gởi một tờ giấy chứng nhận về cho bạn, bạn lên medecin traitant bảo muốn chích HPV, bác sĩ sẽ cho đơn thuốc có ghi "gardasil 9" (mình nghe nói có nhiều chủng nhưng đơn của mình là cái này)
-Bạn cầm đơn thuốc + giấy Smerep + giấy attestation có số bảo hiểm của ameli (số provisoire cũng được, carte vitale thì càng tốt), ra pharmacie mua, bảo hiểm hoàn lại 100% nhé. Mình nghe nói ra các Pharmacie Des Ecoles thì bạn không cần trả tiền cho cái Gardasil 9 ấy, vì có liên kết với Smerep, mình cũng không rõ việc này lắm.
+<em>1. Mua bảo hiểm. </em>Mình chích vaccine này lúc 23 tuổi, là quá tuổi được miễn phí theo quy định rồi. Mình mua bảo hiểm của Smerep, loại Indispensable 8e/tháng (bạn google "smerep indispensable" là có nhé), lúc mình mua chỉ trả 56e (bảo hiểm cho sinh viên nên tính đến cuối tháng tám)
+
+<em>2. Gặp bác sĩ. </em>Đợi vài tuần thì Smerep sẽ gởi một tờ giấy chứng nhận về cho bạn, trong lúc chờ đợi bạn lên medecin traitant bảo muốn chích HPV, bác sĩ sẽ cho đơn thuốc có ghi "gardasil 9" (mình nghe nói có nhiều chủng nhưng đơn của mình là cái này)
+
+<em>3. Mua vaccine và đem đến cho bác sĩ. </em>Bạn cầm đơn thuốc + giấy Smerep + giấy attestation có số bảo hiểm của ameli (số provisoire cũng được, carte vitale thì càng tốt), ra pharmacie mua, bảo hiểm hoàn lại 100% nhé. Mình nghe nói ra các Pharmacie Des Ecoles thì bạn không cần trả tiền cho cái Gardasil 9 ấy, vì có liên kết với Smerep, mình cũng không rõ việc này lắm.
 
 Vaccine này phải bảo quản lạnh nên bạn đến bác sĩ ngay sau khi mua nhé, hoặc có phải về nhà thì xin cái túi bảo quản, sau đó bỏ vào tủ lạnh. 
 
