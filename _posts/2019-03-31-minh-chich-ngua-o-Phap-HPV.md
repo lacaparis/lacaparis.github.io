@@ -3,7 +3,7 @@ layout: post
 title: Mình chích ngừa ở Pháp - HPV
 ---
 
-Một trong những điều mình khá thích ở Pháp là hệ thống y tế tiên tiến. Lúc mình qua đây được trường cho đi khám sức khỏe và chích ngừa. Buồn cười là khi mình nói không rõ lúc nhỏ đã chích những gì, bác sĩ hơi hoang mang, chích luôn cho mình mấy mũi và cấp cho cái Carte Jaune, là International Cartificate of Vaccination. Việc khám sức khỏe thì tùy trường, tùy tổ chức, nhưng các bạn nên hỏi xin cái thẻ vàng đấy để sau này quản lý tình trạng sức khỏe của mình tốt hơn.
+Một trong những điều mình khá thích ở Pháp là hệ thống y tế tiên tiến. Lúc mình qua đây được trường cho đi khám sức khỏe và chích ngừa. Buồn cười là khi mình nói không rõ lúc nhỏ đã chích những gì, bác sĩ hơi hoang mang, chích luôn cho mình mấy mũi và cấp cho cái Carte Jaune, là International Cartificate of Vaccination. Việc khám sức khỏe thì tùy trường, tùy tổ chức, nhưng các bạn nên hỏi xin cái thẻ vàng đấy để sau này quản lý tình trạng sức khỏe tốt hơn.
 
 À, quay lại chủ đề chính, mình chích HPV miễn phí như thế nào? 
 <em>(Các vấn đề liên quan như tại sao phải chích thì các bạn tìm hiểu trên mạng, mình chỉ nói về cách mình đã làm thôi.)</em>
